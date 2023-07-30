@@ -1,6 +1,6 @@
 ### Olá! Eu sou a Thaiz Daniele Kutz 🖐️
 [![LinKedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/thaiz-daniele-kutz-a6758719b)
-[![Youbute](https://img.shields.io/badge/YouTube-FF0000?style=for-the-badge&logo=youtube&logoColor=white)](https://youtube.com/@resultadosmatematicos555)
+[![Youbute](https://img.shields.io/badge/YouTube-FF0000?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/@resultamath)
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/thaizdanielekutz?utm_source=qr&igshid=MzNlNGNkZWQ4Mg%3D%3D)
 [![LinkTree](https://img.shields.io/badge/linktree-39E09B?style=for-the-badge&logo=linktree&logoColor=white)](https://linktr.ee/thaizdanielekutz?fbclid=PAAaa3CgVuX16-YEWnTK0a82C2Ox6cN8-s31sG7ivlf5bjgGiCaDdkF_tDhho)
 
